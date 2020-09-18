@@ -11,8 +11,8 @@ the moon is up there.
 曾经有两人用一根绳子把对方绑在一起来实验一种亲密关系，这个实验虽被认作行为艺术，但作品本身并没有生成太多新的东西，是一种实验，但也仅仅是在现存的社会框架之下进行的某种实验，更像是一种验证实验，物理学中的那种实验。我们不需要验证或证明任何已有的规则，我们试图能比绳子行为艺术更进一步，在他们用身体论证了某种遥不可及的亲密关系的荒谬之后，我们用实验的方式来探索身体在与环境的关系中能达到何种自由的限度，以一种不同于他们的积极肯定的方式，以一种创造多元化关系和新的价值的意图来实验。出发点是从两个个体，但希望通过实验纳入更多Haecceity，人、动物、原子、宇宙，生成pact，生成分子，生成音乐。
 
 2020.9.17
-<img src="https://github.com/f-i-b-e-r/f-i-b-e-r.github.io/blob/master/fiber_pics/fiber01.jpg" width="400" height="790">
-![image](https://github.com/f-i-b-e-r/f-i-b-e-r.github.io/blob/master/fiber_pics/fiber01.jpg) 
+
+<img src="https://github.com/f-i-b-e-r/f-i-b-e-r.github.io/blob/master/fiber_pics/fiber01.jpg" width="400" height="533.3">
 
 
 You can use the [editor on GitHub](https://github.com/f-i-b-e-r/fiber.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
