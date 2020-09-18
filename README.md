@@ -14,7 +14,8 @@ the moon is up there.
 **2020.9.17**
 
 <img src="https://github.com/f-i-b-e-r/f-i-b-e-r.github.io/blob/master/fiber_pics/fiber01.jpg" width="400" height="533.3">  
-_Why Don't We Saddle A Couple of Horses And Go For A Ride?_
+
+_Why Don'tWe Saddle A Couple of Horses And Go For A Ride?_ tissue, tears, take-out food
 
 
 You can use the [editor on GitHub](https://github.com/f-i-b-e-r/fiber.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
