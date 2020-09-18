@@ -19,4 +19,4 @@ the moon is up there.
 
 <img src="https://github.com/f-i-b-e-r/f-i-b-e-r.github.io/blob/master/fiber_pics/fiber01.jpg" width="400" height="533.3" />  
 
-_Why Don't We Saddle A Couple of Horses And Go For A Ride?_ 
+_Why Don't A Couple of Horses Saddle A Tube And Go For Breakfast?_ 
