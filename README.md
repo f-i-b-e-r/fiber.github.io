@@ -12,7 +12,7 @@ the moon is up there.
 
 2020.9.17
 
-![image](https://github.com/f-i-b-e-r/f-i-b-e-r.github.io/blob/master/fiber_pics/fiber01.jpg) 
+![image](https://github.com/f-i-b-e-r/f-i-b-e-r.github.io/blob/master/fiber_pics/fiber01.jpg =500x250) 
 
 
 You can use the [editor on GitHub](https://github.com/f-i-b-e-r/fiber.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
