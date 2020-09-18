@@ -1,12 +1,9 @@
 # f-i-b-e-r
 
-## fiber is to archive a relationship experimentaton.
+## fiber is to archive a relationship experimentation.
 
 see it or not,   
-the moon is always up there，  
-at least until the day we disappear，  
-what last is an ever-changing interaction，  
-love each other forever and ever.
+the moon is up there.
 
 You can use the [editor on GitHub](https://github.com/f-i-b-e-r/fiber.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
