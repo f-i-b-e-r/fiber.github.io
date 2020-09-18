@@ -1,6 +1,6 @@
 # f-i-b-e-r
 
-##fiber is to archive a relationship experimentaton.
+## fiber is to archive a relationship experimentaton.
 
 see it or not,   
 the moon is always up there，  
