@@ -1,8 +1,9 @@
 # f-i-b-e-r
 
-## fiber is to archive a relation-without-ship experimentation.
+## Fiber is to archive a relation-without-ship experimentation.  
+## Fiber用来记录一个关系的实验。
 
-see it or not,   
+See it or not,   
 the moon is up there.
 
 发起者为两人，参与者将超过两人，二元分化让人窒息，多元化解放身体，试图以创造为前提来实验一种新的关系，实验过程中产生的果实以图片、文字、视频、声音等形式存档于此。  
