@@ -1,7 +1,7 @@
 # f-i-b-e-r
 
-## f-i-b-e-r is to archive a relation-without-ship experimentation.  
-## f-i-b-e-r用来记录一个关系实验。
+## Fiber is to archive a relation-without-ship experimentation.  
+## Fiber用来记录一个关系实验。
 
 See it or not,   
 the moon is up there.
