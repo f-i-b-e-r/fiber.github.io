@@ -24,6 +24,10 @@ _Why Don't A Couple of Horses Saddle A Tube And Go For Breakfast?_
 
 **2020.9.20**
 
-This experimentation is in need of some major changes currently. The mutual trust is lack between the two original participants, new haecceity needs to be involved. one of them wants to flee, the other barely cares about this project, the one who wants to flee felt passive and exausted.   
-This experimentation needs to be kept affirmative and positive.
-Involution not agression.
+This experimentation is in need of some major changes currently. The mutual trust is lack between the two original participants, new haecceity needs to be involved. one of them wants to flee, the other barely cares about this project, one who wants to flee felt passive and exausted.   
+This experimentation needs to be kept affirmative and positive.  
+Involution not agression.  
+One is exausted, ones heart is in constant agony, one feels blocked, one doesn't want to feel the amplified pain in ones heart, one intended to become as Body without Organ, any pain that is unable to pass through the whole body as pain wave, but only stays in one organ is not intense enough. It is not painful enough. Or it is not the right kind of pain.  
+This project require the building of life-long relations, these relations are not just one relation, 更不是仅存在于两个个体之间的关系，这种没有时限的长期项目也并不会有任何的契约关系，来来去去，处于不断的变化和更新，维系它们的是自觉性和积极的肯定，如果有参与者分不清这个项目中的关系和一般意义上的关系，友谊、爱情、亲情等，将那些被动的因素带入项目会将其引致虚无的方向，此时一方感觉到了强烈的层级关系，记忆在此起到了消极的作用，欠缺忘记的能力和意图。爱情的残余并未除干净，那种性爱为中心生发出来的各种消极行动和感觉在这里依然时隐时现，参与者不能很好遗忘则自然而然远离了这个项目。桎梏于个人情感的满足阻滞创造和生成。附加一条：  
+参与者，无论是人、动物还是所有别的，需有强烈的创造欲，并且擅长遗忘。
+
