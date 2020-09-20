@@ -20,3 +20,10 @@ the moon is up there.
 <img src="https://github.com/f-i-b-e-r/f-i-b-e-r.github.io/blob/master/fiber_pics/fiber01.jpg" width="400" height="533.3" />  
 
 _Why Don't A Couple of Horses Saddle A Tube And Go For Breakfast?_ 
+
+
+**2020.9.20**
+
+This experimentation is in need of some major changes currently. The mutual trust is lack between the two original participants, new haecceity needs to be involved. one of them wants to flee, the other barely cares about this project, the one who wants to flee felt passive and exausted.   
+This experimentation needs to be kept affirmative and positive.
+Involution not agression.
