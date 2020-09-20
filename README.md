@@ -30,4 +30,6 @@ Involution not agression.
 One is exausted, ones heart is in constant agony, one feels blocked, one doesn't want to feel the amplified pain in ones heart, one intended to become as Body without Organ, any pain that is unable to pass through the whole body as pain wave, but only stays in one organ is not intense enough. It is not painful enough. Or it is not the right kind of pain.  
 This project require the building of life-long relations, these relations are not just one relation, 更不是仅存在于两个个体之间的关系，这种没有时限的长期项目也并不会有任何的契约关系，来来去去，处于不断的变化和更新，维系它们的是自觉性和积极的肯定，如果有参与者分不清这个项目中的关系和一般意义上的关系，友谊、爱情、亲情等，将那些被动的因素带入项目会将其引致虚无的方向，此时一方感觉到了强烈的层级关系，记忆在此起到了消极的作用，欠缺忘记的能力和意图。爱情的残余并未除干净，那种性爱为中心生发出来的各种消极行动和感觉在这里依然时隐时现，参与者不能很好遗忘则自然而然远离了这个项目。桎梏于个人情感的满足阻滞创造和生成。附加一条：  
 参与者，无论是人、动物还是所有别的，需有强烈的创造欲，并且擅长遗忘。
+  
+“观察井盖，找压扁动物尸体，看地下室角落的狗，在举行婚礼的山坡上眺望监狱，黄色垃圾桶被拖走，看到了，改变一个空间的氛围，和sp在一起的时候像在无聊的日常生活中开辟了一个环绕着我们的另外的空间，除了不能随意脱裤子之外，一切都能在不经意之间产生。”
 
