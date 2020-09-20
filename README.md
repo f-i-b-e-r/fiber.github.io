@@ -24,7 +24,7 @@ _Why Don't A Couple of Horses Saddle A Tube And Go For Breakfast?_
 
 **2020.9.20**
 
-This experimentation is in need of some major changes currently. The mutual trust is lack between the two original participants, new haecceity needs to be involved. one of them wants to flee, the other barely cares about this project, one who wants to flee felt passive and exausted.   
+This experimentation is in need of some major changes currently. The mutual trust is lack between the two original participants, new haecceity needs to be involved. one of them wants to flee, the other barely cares about this project, one who wants to flee felt passive and exhausted.   
 This experimentation needs to be kept affirmative and positive.  
 Involution not agression.  
 One is exausted, ones heart is in constant agony, one feels blocked, one doesn't want to feel the amplified pain in ones heart, one intended to become as Body without Organ, any pain that is unable to pass through the whole body as pain wave, but only stays in one organ is not intense enough. It is not painful enough. Or it is not the right kind of pain.  
