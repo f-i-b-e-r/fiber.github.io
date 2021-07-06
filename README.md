@@ -1,6 +1,6 @@
 # f-i-b-e-r
 
-## f-i-b-e-r is to archive a multiplicity of non-relationships.
+## is to archive a multiplicity of non-relationships.
 
 
 **2020.9.17**
